@@ -2,13 +2,14 @@
 John Lever is inviting you to a scheduled Zoom meeting.
 
 Topic: My Meeting
-Time: Nov 19, 2021 02:30 PM Pacific Time (US and Canada)
+Time: Nov 21, 2021 04:00 PM Pacific Time (US and Canada)
 
 Join Zoom Meeting
-https://zoom.us/j/93258851500?pwd=YnZhSGlDZXRZM21GYzNLNEwvWXo3QT09
+https://zoom.us/j/95532398152?pwd=azRncVdqKzczd0pJdnJIUlhWNGNFZz09
 
-Meeting ID: 932 5885 1500
-Passcode: UBa0K6
+Meeting ID: 955 3239 8152
+Passcode: x8LKBH
+
 
 
 
