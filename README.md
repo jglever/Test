@@ -1,13 +1,10 @@
 John Lever is inviting you to a scheduled Zoom meeting.
 
 Topic: My Meeting
-Time: Feb 28, 2022 07:15 PM Pacific Time (US and Canada)
+Time: Mar 1, 2022 04:30 PM Pacific Time (US and Canada)
 
 Join Zoom Meeting
-https://zoom.us/j/95199204738?pwd=N09kZjZZT3U5emxZLzM5elBYUjRNdz09
+https://zoom.us/j/93637398231?pwd=MWRHU3ZJVlBFWDd0L3NiME1LQjV2UT09
 
-Meeting ID: 951 9920 4738
-Passcode: Yi1C0R
-
-
-
+Meeting ID: 936 3739 8231
+Passcode: 1mTK4N
